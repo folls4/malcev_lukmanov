@@ -1,1 +1,1 @@
-https://fonts-online.ru/fonts/gurl-bones
+https://fonts-online.ru/fonts/gurl-bones3
